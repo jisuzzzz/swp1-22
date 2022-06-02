@@ -1,2 +1,2 @@
-2022	 Kim Jisu
+2022   Kim Jisu1
 kookmin Univ. sw dept.
